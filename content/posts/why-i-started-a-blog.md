@@ -25,7 +25,7 @@ Eu, com 20 anos agora, continuo insatisfeito comigo mesmo, com a faculdade, com 
 
 Pensando nessas coisas eu resolvi criar esse blog. Não apenas para me desabafar, mas para postar minhas experiências, meus aprendizados e meus pensamentos. Quero sair da zona de conforto e me aventurar fazendo algo que me parece útil e me trará satisfação. O que eu aprender, pretendo repassar para ajudar pessoas que estão em uma situação parecida com a minha - parece que a grande maioria dos jovens estão assim, principalmente os homens, por que será?
 
-Se encontrar não é uma coisa fácil. Requer consciência, auto-observação, sair da sua zona de conforto,cair, se levantar e, literalmente, se encontrar. É um pouco difícil para mim explicar nesse momento, mas a ideia é essa.
+Se encontrar não é uma coisa fácil. Requer consciência, auto-observação, sair da sua zona de conforto, cair, se levantar e, literalmente, se encontrar. É um pouco difícil para mim explicar nesse momento, mas a ideia é essa.
 
 Não postarei somente sobre autodesenvolvimento. Enquanto estou me descobrindo e aprendendo, vou postando o que eu achar legal. Espero que os conteúdos sejam úteis a quem irá ler.
 
